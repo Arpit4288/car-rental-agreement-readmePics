@@ -26,6 +26,8 @@
 
 
 
+<img width="384" alt="image" src="https://github.com/Arpit4288/car-rental-agreement-readmePics/assets/87499605/728cf870-80cf-4ed2-a2ba-ed0a780cb628">
+
 
 
 
